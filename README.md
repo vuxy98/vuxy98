@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Vu Nguyen, an asian guy
+-  I’m interested in multiple things, like gaming, problem solving and such. Also dont forget to excercise!
+-  I’m currently learning software engineering, game coding and drawing as a side hobby :D
+-  I’m looking to collaborate on my personal projects, and more as time goes on
+-  Contact me through: clusterbomb74@gmail.com
+-  Call me He/Him
+-  Fun fact: fun fact are not often really 'fun' fact
